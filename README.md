@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @AFleyshgauer-mpg
+- 👀 I’m interested in Data
+- 🌱 I’m currently learning Software Integration Hellscapes
